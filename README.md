@@ -37,6 +37,6 @@ Use of KITTY is also subject to its Privacy Policy, which explains how informati
 These Terms may be updated as KITTY changes. The latest version will be published on this page with an updated effective date.
 
 ## 10. Contact
-Terms contact: https://discord.gg/sJaMvB33jK
+Terms contact: https://discord.gg/Z9WtJb9cET
 
 ---
